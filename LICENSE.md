@@ -1,4 +1,4 @@
-# 
+# Aseprite for PC | Aseprite for Windows custom Script: adjustment-layers & photo-restoration offers the most advanced Aseprite for PC | Aseprite for Windows script, with
 
 
 
